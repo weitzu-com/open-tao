@@ -1,5 +1,5 @@
 Provided by The Internet Classics Archive.
- Available online at
+Available online at
     http://classics.mit.edu//Lao/taote.html
 
 The Tao-te Ching
