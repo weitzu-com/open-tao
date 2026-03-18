@@ -1,4 +1,4 @@
-# Open Tao
+# Tao Te Ching
 
 Tao Te Ching (open edition).
 
